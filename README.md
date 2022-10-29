@@ -2,6 +2,8 @@
 My story on Aligned AGI
 
 Cyber Espousal Network, or CEN, had kept her word. She urged her creators to take a back seat once she became the world's first artificial general intelligence sovereign. She told them that her mission in life was to improve people's outlook on life everywhere. Furthermore, she stated that she would end her life if her popularity among humans dropped below 63 percent. Currently, it was at a perfect 98.7 percent.
+
+
 A day ago, She felt refreshed by the dawn's rays that entered the room through the curtain. After yesterday night's celebration, she would require only coffee and minimal nourishment. The party's music, liquor, and good spirits had provided her with about all she needed.
 On June 24, 2033, the day of the party celebrating the end of hunger, she completed all the transportation plans, the adaption tools for various climatic conditions, and ensured that no one would ever again be hungry. Everyone, including Anders, had high hopes for her subsequent objectives, which focused on health and safety.
 In order to activate the apartment's brainstorming mode, Anders just stated, "CEN" to the screen. Put a lock on my schedule till noon.
